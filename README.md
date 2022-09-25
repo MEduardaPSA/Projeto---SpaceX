@@ -8,3 +8,11 @@
 #### E por fim, o "hire", que é um pequeno formulário de contratação de serviços. 
 
 #### | @OneBitCode e @MariaEduardaAraújo |
+
+![image](https://user-images.githubusercontent.com/104032250/192163486-a24980c2-256e-4833-ac3b-665381e347e8.png)
+### ________________________________________________________
+![image](https://user-images.githubusercontent.com/104032250/192163510-4370a1d3-c165-4e0b-86b3-13573cfca441.png)
+### ________________________________________________________
+![image](https://user-images.githubusercontent.com/104032250/192163533-2379752e-40f6-4ebc-bc11-e0c4855cd773.png)
+
+
